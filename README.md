@@ -6,6 +6,6 @@
 - 🤔 Estou procurando ajuda com minhas abilidades 
 - 💬 Pergunte-me sobre como ajudar os outros 
 - 📫 Como entrar em contato comigo pelo Whats
-- 😄 Pronouns 
-- ⚡ Curiosidade 
+
+
   
